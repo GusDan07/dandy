@@ -1,2 +1,0 @@
-# dandy
-Pribadi
